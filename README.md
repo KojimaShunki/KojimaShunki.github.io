@@ -1,0 +1,1 @@
+# KojimaShunki.github.io
